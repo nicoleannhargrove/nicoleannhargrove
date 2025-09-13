@@ -31,7 +31,7 @@ I’m currently on a 60-day journey to deepen my expertise as an **AI Solutions 
 ---
 
 🌍 I believe in sharing knowledge, creating global impact, and building legacy.  
-📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/nicoleannhargrove) or visit [nicoleannhargrove.com](https://nicoleannhargrove.com).
+📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/nicoleannhargrove) 
 
 ---
 
